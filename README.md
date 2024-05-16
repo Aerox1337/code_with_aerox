@@ -1,1 +1,1 @@
-I code HTML//CSS files. The file is not copyright ✅
+I code HTML//CSS files. Files are not copyrighted ✅
